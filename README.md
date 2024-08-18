@@ -1,4 +1,4 @@
-### <table><tr><td bgcolor=yellow> nku的同学看这里⬇</td></tr></table>
+### <font color=#FF0000 >nku的同学看这里⬇</font>
 
 *学妹学弟们参考的时候麻烦点个star哦！凭star记录可以邮件来信咨询作业的有关问题~*
 
